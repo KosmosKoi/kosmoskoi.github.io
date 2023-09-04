@@ -1,0 +1,1 @@
+# krazykoi.github.io
